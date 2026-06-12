@@ -1,4 +1,4 @@
-## Hi there 👋
+## Make Germany great again👋
 
 <!--
 **Werdernaut/werdernaut** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
